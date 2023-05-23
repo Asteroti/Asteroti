@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Asteroti
-- 👀 I’m interested in human learning, perception of the self and art. Unfortunately.
+- 👀 I’m interested in human learning, perception of the self and art.
 - 🌱 Experiencing and learning about the human condition, one day at a time.
 
 Thanks for _reading me_ and let me know if there's anything I can help you with.
